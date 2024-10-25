@@ -6,5 +6,5 @@ https://docs.google.com/presentation/d/1Wr5IBuTQilPKtECgTngVKiQMzVAhIfPeNRAp7p7F
 
 https://drive.google.com/drive/folders/1uJPC-3QHmeDUOgRcgIwHDwfXCDCY5iEK?usp=sharing (справка)
 
-https://docs.google.com/document/d/1VsXI_eI1rxx7kivZYSPbBgvcYVdeXJU6RBngM0sQ2yI/edit?usp=drive_link (конспект)
+https://drive.google.com/drive/folders/17cCQtBvYrZCTB8htGi5qB1HLrXKFBvsD?usp=sharing (база данных)
 
